@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://linktr.ee/simplified_learner](https://linktr.ee/simplified_learner)
 
-- ⚡ Fun fact **I am funny😅**
+- ⚡ Fun fact **I am Pro Noob😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
